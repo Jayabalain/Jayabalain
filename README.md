@@ -1,4 +1,4 @@
-Hi I'm MJ!!
+Hi I'm MJ but you can call me Jay!!
 
 
 - 👋 Hi, I’m @Jayabalain
